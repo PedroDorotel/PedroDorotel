@@ -1,5 +1,5 @@
 ### Boas vindas ao meu perfil🤠
-![](https://tenor.com/pt-BR/view/cat-ailen-eating-chips-gif-17459699119330025308)
+![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExOXVjdXRhd2MxazVsNDU4NjU1ajd4ZHNlZW1qdnFqMW44Y3IydGthdCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/G6TgcESZt8FFk8XV7K/giphy.gif)
 
 - Me chamo Pedro Dorotel
 - Sou um estudante do terceiro ano do ensino médio
