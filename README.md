@@ -6,4 +6,4 @@
 - Se quiser conversar comigo, irei deixar meu e-mail e meu @ do Instagram:
 - dorotelp@gmail.com
 - @Pedro_Dorotel
-![](https://tenor.com/search/gif-meme-gifs)
+![](https://tenor.com/pt-BR/view/cat-ailen-eating-chips-gif-17459699119330025308)
