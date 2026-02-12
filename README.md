@@ -1,4 +1,5 @@
 ### Boas vindas ao meu perfil🤠
+![](https://tenor.com/pt-BR/view/cat-ailen-eating-chips-gif-17459699119330025308)
 
 - Me chamo Pedro Dorotel
 - Sou um estudante do terceiro ano do ensino médio
@@ -6,4 +7,3 @@
 - Se quiser conversar comigo, irei deixar meu e-mail e meu @ do Instagram:
 - dorotelp@gmail.com
 - @Pedro_Dorotel
-![](https://tenor.com/pt-BR/view/cat-ailen-eating-chips-gif-17459699119330025308)
